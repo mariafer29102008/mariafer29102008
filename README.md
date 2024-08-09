@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @mariafer29102008
+- 👋 Hi, sou @mariafer29102008
 - 👀 I’m interested in: trabalhar
 - 🌱 I’m currently learning: tecnologia
 - 💞️ I’m looking to collaborate on: matematica
